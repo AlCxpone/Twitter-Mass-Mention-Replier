@@ -16,7 +16,7 @@ Replies with a large number of mentions on the specified Tweet for Easy Marketin
 Price: <strike>$2000</strike> <b>$1700</b><br>
 Payment Methods: BTC, ETH, LTC, SOL
 
-[Telegram](https://t.me/alcxpone) — [Shop **(buy here)**](https://alcxpone.sellix.io)
+[Telegram](https://t.me/alcapone_services) — [Shop **(buy here)**](https://alcxpone.sellix.io)
 
 ## Terms of Service
 - All sales are final
